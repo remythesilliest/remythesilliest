@@ -8,7 +8,7 @@
 
 <img src="https://i.imgur.com/J6G8yzv.gif">  my strawpage is currently in wip! i plan 2 finish it soon...
 
-<img src="https://i.imgur.com/mStrS2I.gif"> insane suntan,caprisun,sunkel shipper..were literally dating frfr
+<img src="https://i.imgur.com/mStrS2I.gif"> insane suntan,caprisun,sunkel shipper..hes my bf fr
 
 <img src="https://i.imgur.com/J6G8yzv.gif"> sunny,omori,girlsunny, and girlomori fictionkin! (and lierally any other version of either) (doubles dni)
 
