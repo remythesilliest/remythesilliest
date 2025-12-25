@@ -5,13 +5,7 @@
 <img src="https://media.discordapp.net/attachments/1076066169108303892/1453656734194335877/593112d9c5a35a6c528c42c749f63cf4.png?ex=694e3ed5&amp;is=694ced55&amp;hm=79876a11f6f9dc31710fd47f54ecb98e318fc9998ac5396a7026540ca2de8fe3&amp;=&amp;format=webp&amp;quality=lossless&amp;width=1012&amp;height=450" alt />
 
 
-<img src="https://i.imgur.com/mStrS2I.gif"> c+h freely, unless name states not 2
-
-<img src="https://i.imgur.com/J6G8yzv.gif">  my strawpage is currently in wip! i plan 2 finish it soon...
-
-<img src="https://i.imgur.com/mStrS2I.gif"> insane suntan,caprisun,sunkel shipper..hes literally my boyfriend
-
-<img src="https://i.imgur.com/J6G8yzv.gif"> sunny,omori,girlsunny, and girlomori fictionkin! (and lierally any other version of either) (doubles dni)
+working on this
 
 
 
