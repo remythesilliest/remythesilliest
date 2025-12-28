@@ -1,7 +1,8 @@
+" we⠀⠀were⠀⠀pretty⠀⠀adventurous⠀⠀back⠀⠀then,⠀⠀huh?⠀⠀haha... "
 
 
 
-  
+⠀⠀
 <img src="https://media.discordapp.net/attachments/1076066169108303892/1453656734194335877/593112d9c5a35a6c528c42c749f63cf4.png?ex=694e3ed5&amp;is=694ced55&amp;hm=79876a11f6f9dc31710fd47f54ecb98e318fc9998ac5396a7026540ca2de8fe3&amp;=&amp;format=webp&amp;quality=lossless&amp;width=1012&amp;height=450" alt />
 
 
