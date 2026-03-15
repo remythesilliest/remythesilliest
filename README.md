@@ -1,6 +1,6 @@
 we⠀⠀were⠀⠀pretty⠀⠀adventurous⠀⠀back⠀⠀then,⠀⠀huh?⠀⠀haha...
 
-<img src="https://i.pinimg.com/736x/59/31/12/593112d9c5a35a6c528c42c749f63cf4.jpg" alt="Story pin image"/>
+WORKING ON THIS OK.
 
 
 ts look ugly but wtv
