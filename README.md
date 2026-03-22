@@ -1,6 +1,7 @@
 we⠀⠀were⠀⠀pretty⠀⠀adventurous⠀⠀back⠀⠀then,⠀⠀huh?⠀⠀haha...
 
-WORKING ON THIS OK.
+<img width="860" height="520" alt="image" src="https://github.com/user-attachments/assets/575eee77-eb9a-4eea-994c-b9530194f7d7" />
+
 
 
 
