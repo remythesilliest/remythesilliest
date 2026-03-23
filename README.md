@@ -3,6 +3,7 @@ we⠀⠀were⠀⠀pretty⠀⠀adventurous⠀⠀back⠀⠀then,⠀⠀huh?⠀⠀ha
 <img width="860" height="520" alt="image" src="https://github.com/user-attachments/assets/575eee77-eb9a-4eea-994c-b9530194f7d7" />
 
 
+c+h freely,even when my name doesent say it! unless if my name saids something like "w2i" or "dni", please int! if my name saids, "offtab" or "semi-offtab", im not fully paying attention to ponytown 💔
 
 
 
