@@ -8,8 +8,11 @@
   ⠀⠀⠀⠀- UNLESS FREIND PLEASE COVER BLEHHH esp when upset ok thank yew
  
   ⠀⠀⠀⠀- unless if my name saids something like "dniuf,dniuid" or "dni", please int!
- 
-  ⠀⠀⠀⠀- if my name saids, "offtab,semi-offtab" or "w2i", im not fully paying attention to ponytown X(
+
+  ⠀⠀⠀⠀- whenever i go afk, i take FORVER coming back i apologise i take long doing anything :/
+  
+  ⠀⠀⠀⠀- if my name saids, "offtab,semi-offtab" or "w2i", im not fully paying attention to ponytown
+
 
  
 
