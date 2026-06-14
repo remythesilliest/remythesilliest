@@ -1,6 +1,6 @@
 ⠀⠀⠀⠀⠀  we⠀⠀were⠀⠀pretty⠀⠀adventurous⠀⠀back⠀⠀then,⠀⠀huh?⠀⠀haha... 
 
-rmking this and links, dw fandom iwec always, still getting used to the fandom but i wouldnt consider myself in it, you'll most likey see me in the aea by dr more than spawn 
+rmking this and links. dw fandom iwec always, still getting used to the fandom but i wouldnt consider myself in it, you'll most likey see me in the aea by dr more than spawn 
 ⠀⠀
 
   ⠀⠀⠀⠀- c+h freely,even when my name doesent say it! but dont cover much
