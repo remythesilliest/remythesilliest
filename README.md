@@ -1,6 +1,6 @@
 ⠀⠀⠀⠀⠀  we⠀⠀were⠀⠀pretty⠀⠀adventurous⠀⠀back⠀⠀then,⠀⠀huh?⠀⠀haha... 
 
-<img width="860" height="520" alt="image" src="https://github.com/user-attachments/assets/575eee77-eb9a-4eea-994c-b9530194f7d7" />
+rmking this and links, dw fandom iwec always, still getting used to the fandom but i wouldnt consider myself in it, you'll most likey see me in the aea by dr more than spawn 
 ⠀⠀
 
   ⠀⠀⠀⠀- c+h freely,even when my name doesent say it! but dont cover much
